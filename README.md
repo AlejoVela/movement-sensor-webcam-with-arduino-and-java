@@ -2,5 +2,5 @@
 
 Hecho por Diego Restrepo y Didier Delgado 2020
 
-Información del proyecti
+Información del proyecto
 https://drive.google.com/open?id=1h75S-yEw94TdYgvLaF6AaG08Nz04f6V0
