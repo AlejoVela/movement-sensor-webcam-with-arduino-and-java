@@ -3,4 +3,4 @@
 Hecho por Diego Restrepo y Didier Delgado 2020
 
 Información del proyecto
-https://drive.google.com/open?id=1h75S-yEw94TdYgvLaF6AaG08Nz04f6V0
+https://drive.google.com/file/d/1suv1IiXCSyyrpm8HMtoeZGt-RTy_5oUb/view?usp=sharing
